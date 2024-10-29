@@ -1,0 +1,1 @@
+Robotic Prosthetic Hand by grossrc on Thingiverse: https://www.thingiverse.com/thing:1691704
